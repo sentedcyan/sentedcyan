@@ -1,7 +1,7 @@
-<img width="284" height="369" alt="Image" src="https://github.com/user-attachments/assets/be0dc1e8-4589-492c-826f-288109ddd52a" />
-  
+<img width="807" height="807" alt="Image" src="https://github.com/user-attachments/assets/6a9accd3-e75d-4cf2-8ca2-5c2b72fd1ad4" />
                                 
-                                '  𝚈𝚘𝚞 𝚝𝚘𝚞𝚌𝚑𝚎𝚍 𝚖𝚢 𝚋𝚊𝚌𝚔
-                                '  𝙸 𝚝𝚘𝚘𝚔 𝚢𝚘𝚞𝚛 𝚑𝚊𝚗𝚍
-                   ' 𝚂𝚘𝚖𝚎𝚝𝚑𝚒𝚗' 𝚏𝚛𝚘𝚖 𝚢𝚘𝚞𝚛 𝚝𝚘𝚞𝚌𝚑 𝚜𝚎𝚎𝚖𝚎𝚍 𝚜𝚑𝚘𝚌𝚔𝚒𝚗𝚐𝚕𝚢 𝚏𝚊𝚖𝚒𝚕𝚕𝚒𝚊𝚛
-                        '   𝙰𝚗𝚍 𝚒 𝚜𝚠𝚘𝚛𝚎 𝚒𝚟𝚎 𝚜𝚎𝚎𝚗 𝚢𝚘𝚞 𝚋𝚎𝚏𝚘𝚛𝚎 . ?
+                      
+                         ^ 𝙸 𝙱𝙻𝙴𝙴𝙳 𝙸𝚃 𝙾𝚄𝚃!
+                            𝚝𝚊𝚔𝚎 𝚒𝚝 𝚍𝚎𝚎𝚙𝚎𝚛,
+                         𝚓𝚞𝚜𝚝 𝚝𝚘 𝚝𝚑𝚛𝚘𝚠 𝚒𝚝 𝚊𝚠𝚊𝚢!
+                                ᶻ 𝗓 𐰁 
