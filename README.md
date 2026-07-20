@@ -1,4 +1,4 @@
-<img width="736" height="652" alt="Image" src="https://github.com/user-attachments/assets/c4e340a4-8929-4b49-abb6-33d70240eeaf" />
+<img width="720" height="720" alt="Image" src="https://github.com/user-attachments/assets/7706b2f9-3776-4630-bb8a-af40f8e08ece" />
                                 
                      
       ^ 𝙸 𝙱𝙻𝙴𝙴𝙳 𝙸𝚃 𝙾𝚄𝚃!
