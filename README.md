@@ -6,7 +6,7 @@
     -   𝚓𝚞𝚜𝚝 𝚝𝚘 𝚝𝚑𝚛𝚘𝚠 𝚒𝚝 𝚊𝚠𝚊𝚢
 
 
-(https://sending.atabook.org)
+https://sending.atabook.org
 
                     
                               
