@@ -1,3 +1,5 @@
- ⋆⊱༻་༘ ' You did the right thing, you always do. ' ་༘༺⊰⋆
+ ⋆⊱༻་༘ ' its my birthday ' ་༘༺⊰⋆
  
- <img width="492" height="508" alt="Image" src="https://github.com/user-attachments/assets/e7e44a1c-6c76-4a90-bc12-e27e0cdfb45f" />
+<img width="425" height="308" alt="Image" src="https://github.com/user-attachments/assets/f6e8b681-761b-416e-b57b-65fb1758b635" />
+
+<img width="999" height="286" alt="Image" src="https://github.com/user-attachments/assets/361d60ce-351c-4d54-ad3a-05bb73ac1f9e" />
