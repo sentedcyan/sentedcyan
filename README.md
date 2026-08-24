@@ -7,4 +7,4 @@
 <p align="center">.•⟡────༄ ✹ ༄────⟡•.
 
 <p align="center">
-$$\color{#C90404}{\text{Bend the bracket - Chevelle}}$$
+$$\color{#C90404}{\text{Send the pain below - Chevelle}}$$
