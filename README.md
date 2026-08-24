@@ -2,6 +2,6 @@
 
                                                                                                                 
 ```diff
-- text in red.•⟡────༄ ✹ ༄────⟡•.
-- text in red Chevelle - vitamin R
+-.•⟡────༄ ✹ ༄────⟡•.
+- Chevelle - vitamin R
  ```                                                    
