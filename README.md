@@ -7,6 +7,6 @@
 <p align="center">.•⟡────༄ ✹ ༄────⟡•.
 
 <p align="center">
-  <font color="#800000">Bend the bracket - Chevelle</font>
+  <font color="#C90404">Bend the bracket - Chevelle</font>
 </p>
 
