@@ -7,4 +7,5 @@
 <p align="center">.•⟡────༄ ✹ ༄────⟡•.
 
 
-<p align="center">Bend the bracket - Chevelle
+``rgb(128, 0, 0)``<p align="center">Bend the bracket - Chevelle
+
