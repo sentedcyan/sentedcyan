@@ -8,6 +8,3 @@
 
 
 <p align="center">Bend the bracket - Chevelle
-$$
-\color{red}\Bend the bracket - Chevelle{<p align="center">} \\
-$$
