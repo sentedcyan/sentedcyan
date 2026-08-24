@@ -7,5 +7,5 @@
 <p align="center">.•⟡────༄ ✹ ༄────⟡•.
 
 
-  `#0969DA`<p align="center">Bend the bracket - Chevelle
+<p align="center">Bend the bracket - Chevelle
 
