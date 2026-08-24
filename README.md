@@ -6,5 +6,5 @@
 
 <p align="center">.•⟡────༄ ✹ ༄────⟡•.
 
-`#DB0B0B` [ATA](https://sending.atabook.org/)
+  [ATA](https://sending.atabook.org/)
 
