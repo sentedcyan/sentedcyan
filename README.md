@@ -7,4 +7,4 @@
 <p align="center">.•⟡────༄ ✹ ༄────⟡•.
 
 <p align="center">
-$$\color{#C24F13}{\text{Send the pain below - Chevelle}}$$
+$$\color{#C24F13}{\text{Just A Stranger - Kali Uchis}}$$
