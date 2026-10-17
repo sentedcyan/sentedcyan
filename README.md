@@ -5,7 +5,6 @@
 </p>
 
 <p align="center"> 
-$$\color{#C9001E}{\text{cry when you feel}}$$
-  
+$$\color{#C9001E}{\text{cry when you feel}}$$ 
 <p align="center">
 $$\color{#C9001E}{\text{the feeling is real}}$$
