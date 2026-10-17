@@ -7,4 +7,4 @@
 <p align="center"> ────༄✹༄────
 
 <p align="center">
-$$\color{#C24F13}{\text{'my sunshine, and my rainbow too'}}$$
+$$\color{#C24F13}{\text{My sunshine, and my rainbow too.}}$$
