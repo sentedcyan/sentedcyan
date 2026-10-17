@@ -7,4 +7,4 @@
 <p align="center"> ───────────
 
 <p align="center">
-$$\color{#D40827}{\text{cry baby, cry baby, cry}}$$
+$$\color{#C9001E}{\text{the tears from your eyes nothing but water, so, go on and cry}}$$
