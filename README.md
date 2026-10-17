@@ -1,10 +1,10 @@
 <p align="center">.•⟡────༄ ✹ ༄────⟡•.
   
 <p align="center">
-  <img width="205" height="205" alt="Image" src="https://github.com/user-attachments/assets/0168dc49-c807-40a6-b9ea-4d256ebca053" />
+ <img width="350" height="350" alt="Image" src="https://github.com/user-attachments/assets/8d798f55-1020-4747-8815-0ccd5f4c71fc" />
 </p>
 
 <p align="center">.•⟡────༄ ✹ ༄────⟡•.
 
 <p align="center">
-$$\color{#C24F13}{\text{Just A Stranger - Kali Uchis}}$$
+$$\color{#C24F13}{\text{You're my sugar after dinner, my number one breadwinner}}$$
