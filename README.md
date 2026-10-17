@@ -1,10 +1,10 @@
 <p align="center"> ────༄✹༄────
   
 <p align="center">
-<img width="500" height="334" alt="Image" src="https://github.com/user-attachments/assets/5973035c-bc43-49b9-8cbf-dc4535813d2e" />
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/1378fd07-10a8-4a08-a5dc-878150ff5d5e" />
 </p>
 
 <p align="center"> ────༄✹༄────
 
 <p align="center">
-$$\color{#C24F13}{\text{whenever i want you, all i have to do is dream}}$$
+$$\color{#CF213B}{\text{cry baby, cry baby, cry!}}$$
