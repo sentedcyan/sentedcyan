@@ -7,4 +7,4 @@
 <p align="center"> ────༄✹༄────
 
 <p align="center">
-$$\color{#C24F13}{\text{'my number one breadwinner'}}$$
+$$\color{#C24F13}{\text{'you're my first and second place'}}$$
