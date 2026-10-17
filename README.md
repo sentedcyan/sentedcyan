@@ -7,4 +7,4 @@
 <p align="center"> ────༄✹༄────
 
 <p align="center">
-$$\color{#C24F13}{\text{'You're my sunshine, and my rainbow too.'}}$$
+$$\color{#C24F13}{\text{'whenever i want you, all i have to do is dream'}}$$
