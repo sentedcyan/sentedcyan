@@ -1,7 +1,7 @@
 <p align="center"> ────༄✹༄────
   
 <p align="center">
-<img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/8af78225-80f4-40da-ac0d-64e33011f815" />
+<img width="500" height="334" alt="Image" src="https://github.com/user-attachments/assets/5973035c-bc43-49b9-8cbf-dc4535813d2e" />
 </p>
 
 <p align="center"> ────༄✹༄────
