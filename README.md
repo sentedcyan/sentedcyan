@@ -7,4 +7,4 @@
 <p align="center"> ────༄✹༄────
 
 <p align="center">
-$$\color{#CF213B}{\text{cry baby, cry baby, cry!}}$$
+$$\color{#D40827}{\text{cry baby, cry baby, cry}}$$
