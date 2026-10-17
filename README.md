@@ -7,4 +7,4 @@
 <p align="center"> ───────────
 
 <p align="center">
-$$\color{#C9001E}{\text{the tears from your eyes nothing but water, so, go on and cry}}$$
+$$\color{#C9001E}{\text{cry when you feel, the feeling is real}}$$
