@@ -1,5 +1,5 @@
 <p align="center">
-$$\color{#C9001E}{\text{oh cartman}}$$
+$$\color{#C9001E}{\text{gummi bear 🤤}}$$
 
 <p align="center"> ───────────
   
