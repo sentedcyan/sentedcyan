@@ -4,7 +4,7 @@ $$\color{#C9001E}{\text{oh cartman}}$$
 <p align="center"> ───────────
   
 <p align="center">
-<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/6fe9bb83-0420-4ec3-bf1b-2f5907b4ab9c" />
+<img width="370" height="370" alt="Image" src="https://github.com/user-attachments/assets/14013035-a999-4eeb-bc29-c570e548749e" />
 </p>
 
 <p align="center"> ───────────
