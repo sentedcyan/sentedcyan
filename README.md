@@ -1,5 +1,5 @@
 <p align="center">
-$$\color{#EECF00}{\text{oh cartman}}$$
+$$\color{#C9001E}{\text{oh cartman}}$$
 
 <p align="center"> ───────────
   
@@ -10,7 +10,8 @@ $$\color{#EECF00}{\text{oh cartman}}$$
 <p align="center"> ───────────
 
 <p align="center">
-$$\color{#C9001E}{\text{what took you so long?}}$$
+$$\color{#3AA8AE}{\text{what took you so long?}}$$
 
 <p align="center">
-$$\color{#3AA8AE}{\text{i thought you knew the way}}$$
+$$\color{#EECF00}{\text{i thought you knew the way}}$$
+
