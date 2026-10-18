@@ -1,5 +1,5 @@
 <p align="center">
-$$\color{#FAE6CF}{\text{terranova, so far away}}$$
+$$\color{#FAE6CF}{\text{she wants my hundred dolla bills}}$$
 
 
 <p align="center"> ───────────
@@ -11,5 +11,5 @@ $$\color{#FAE6CF}{\text{terranova, so far away}}$$
 <p align="center"> ───────────
 
 <p align="center">
-$$\color{#E0670B}{\text{terranova, so far, far away}}$$
+$$\color{#E0670B}{\text{she don't want love}}$$
 
