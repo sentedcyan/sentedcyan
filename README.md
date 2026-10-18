@@ -13,5 +13,5 @@ $$\color{#C9001E}{\text{gummi bear 🤤}}$$
 $$\color{#3AA8AE}{\text{terranova, so far away}}$$
 
 <p align="center">
-$$\color{#EECF00}{\text{terranova, so far, far away!}}$$
+$$\color{#EECF00}{\text{terranova, so far, far away}}$$
 
