@@ -1,3 +1,5 @@
+<p align="center">
+$$\color{#FAE6CF}{\text{terranova, so far away}}$$
 
 
 <p align="center"> ───────────
@@ -7,9 +9,6 @@
 </p>
 
 <p align="center"> ───────────
-
-<p align="center">
-$$\color{#FAE6CF}{\text{terranova, so far away}}$$
 
 <p align="center">
 $$\color{#E0670B}{\text{terranova, so far, far away}}$$
