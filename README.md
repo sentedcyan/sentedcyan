@@ -1,5 +1,5 @@
 <p align="center">
-$$\color{#371766}{\text{she wants my hundred dollar bills}}$$
+$$\color{#23094A}{\text{she wants my hundred dollar bills}}$$
 
 
 <p align="center"> ───────────
@@ -11,5 +11,5 @@ $$\color{#371766}{\text{she wants my hundred dollar bills}}$$
 <p align="center"> ───────────
 
 <p align="center">
-$$\color{#4A1766}{\text{she don't want love}}$$
+$$\color{#7B6894}{\text{she don't want love}}$$
 
