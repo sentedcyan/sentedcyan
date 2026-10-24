@@ -1,5 +1,5 @@
-<p align="center">
-$$\color{#23094A}{\text{she wants my hundred dollar bills}}$$
+<p align="center"> 
+$$\color{#7B6894}{\text{she wants my hundred dollar bills}}$$
 
 
 <p align="center"> ───────────
